@@ -4,8 +4,9 @@ A child of the internet trying to unlearn how to use the internet for a change (
 
 How to reach me:
 
-[Twitter](https://twitter.com/carolinasrc_)
-[Linkedin](https://www.linkedin.com/in/carolinases/)
+- [Twitter](https://twitter.com/carolinasrc_)
+- [Linkedin](https://www.linkedin.com/in/carolinases/)
+
 Pronouns: [she/her](http://pronoun.is/she)
 
 So long and thanks for all the fish!✨

@@ -8,6 +8,5 @@ How to reach me:
 
 - [Twitter](https://twitter.com/carolinasrc_)
 - [Linkedin](https://www.linkedin.com/in/carolinases/)
-- [Website](https://carolinasrc.dev/) 
 
 So long and thanks for all the fish!✨

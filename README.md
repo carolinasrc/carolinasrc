@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-👩🏾‍💻 A child of the internet trying to unlearn how to use the internet and evidently failing. Also, an IOT student working as a software development intern at [Valemobi](https://www.valemobi.com.br/). Finally, a huge enthusiast of cybersecurity, IA & space.
+👩🏾‍💻 A child of the internet trying to unlearn how to use the internet and evidently failing. Also, an IOT student working as a software development intern at [Valemobi](https://www.valemobi.com.br/). Finally, a huge enthusiast of cybersecurity, IA & astrophysics.
 
 Pronouns: 
 [she/her](http://pronoun.is/she)

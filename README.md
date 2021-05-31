@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-👩🏾‍💻 I'm always looking forward to learning and exploring new things. 
+👩🏾‍💻 I'm always looking forward to learning new things.
 
 Pronouns: 
 [she/her](http://pronoun.is/she)

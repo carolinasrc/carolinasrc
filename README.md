@@ -1,6 +1,4 @@
-### Hi there 👋
-
-👩🏾‍💻 I'm always looking forward to learning new things.
+### 1001000 1100101 1101100 1101100 1101111 100000 1010111 1101111 1110010 1101100 1100100 👋
 
 Pronouns: 
 [she/her](http://pronoun.is/she)

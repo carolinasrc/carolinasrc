@@ -1,4 +1,4 @@
-### Hello world! 👋
+### Hi there 👋
 
 Pronouns: 
 [she/her](http://pronoun.is/she)

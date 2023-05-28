@@ -6,4 +6,4 @@ Pronouns:
 How to reach me: 
 - [Linkedin](https://www.linkedin.com/in/carolinases/)
 
-So long and thanks for all the fish!✨
+So long.
